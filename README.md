@@ -21,6 +21,7 @@ Soy Guillermo Acho, vivo en sal salvador de Jujuy, soy hincha de River en mis ti
 
 Soy Paola, vivo en San Salvador de Jujuy, tengo 19 años. En mis tiempos libres me gusta jugar en pc, pasar tiempo con mis gatos, dibujar y leer.
 
+Me llamo Agustín Leonardo Erazo, me gusta el anime y los videojuegos a nivel semi competitivos.
 
     Referencias de paginas:
 
