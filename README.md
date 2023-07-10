@@ -23,6 +23,10 @@ Soy Paola, vivo en San Salvador de Jujuy, tengo 19 años. En mis tiempos libres 
 
 Me llamo Agustín Leonardo Erazo, me gusta el anime y los videojuegos a nivel semi competitivos.
 
+Soy Milagro Martínez, vivo en Monterrico, tengo 19 años en mis tiempos libres salgo con amigos o me pongo a codear.
+
+Soy Erick Benitez, soy de San Salvador de Jujuy, me gusta viciar en mis ratos libres además de quedar para salir con amigos.
+
     Referencias de paginas:
 
 1- https://www.bocashop.com.ar/             //nos gusta como es la muestra de los productos
